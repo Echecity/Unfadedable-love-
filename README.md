@@ -1,1 +1,4 @@
-# Unfadedable-love-
+# Unfadedable-love-"
+Romeo and Juliet" is a tragic play by William Shakespeare that tells the story of two young lovers whose deaths ultimately reconcile their feuding families. Set in Verona, Italy, the play begins with a street brawl between the servants of the noble families of Capulet and Montague. Romeo Montague, who is infatuated with Rosaline, attends a Capulet party in hopes of seeing her but instead meets and falls deeply in love with Juliet Capulet. Despite their families' enmity, they marry in secret the next day.
+
+Tragedy strikes when Romeo kills Juliet's cousin, Tybalt, in a duel, leading to his banishment from Verona. The young couple's plans to reunite go awry when Juliet's parents, unaware of the marriage, arrange for her to marry Paris. To escape this, Juliet fakes her own death using a sleeping potion. However, Romeo, misled by news of her "death," returns to Verona and, finding Juliet in her tomb, takes his own life beside her. Juliet awakens, discovers Romeo's death, and kills herself. The play concludes with the families reconciling, realizing the senselessness of their feud.
